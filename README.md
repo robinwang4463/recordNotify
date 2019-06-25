@@ -7,6 +7,8 @@ Contact：
 
 QQ: 23024067
 
-QQ群: 154337267
+QQ group: 154337267
+
+Email: robin@ttstream.com
 
 WEB: www.ttstream.com
